@@ -1,4 +1,5 @@
-# Receptfria alternativ till Viagra – Guide 2025
+## Översikt: vilka alternativ finns vid erektionsproblem?
+
 
 ## Finns det receptfri Viagra?
 Viagra innehåller sildenafil och är receptbelagt i Sverige. Det finns ingen äkta receptfri Viagra på svenska apotek.
