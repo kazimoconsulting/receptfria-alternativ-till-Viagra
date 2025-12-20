@@ -28,5 +28,6 @@ Vid erektil dysfunktion rekommenderas läkarkontakt för:
 ## Relaterade guider
 - [Köpa sildenafil online](https://gist.github.com/kazimoconsulting/57f004cbb1671c3d042f19fede611085)
 - [Cenforce 100 mg – guide](https://gist.github.com/kazimoconsulting/5e354b41c654f0bb66084ab26c028bd5)
+- [Bästa Potensmedlet i Sverige – Jämförelse 2025](https://gist.github.com/kazimoconsulting/acbe417cc35c763cf543eacb14aecfe0)
 
 
